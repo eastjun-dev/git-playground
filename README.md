@@ -1,3 +1,1 @@
-# Eastjun
-# Westjun
-# Main Page
+# 전설의 
