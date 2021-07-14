@@ -1,3 +1,1 @@
-# Eastjun
-# Westjun
-# Main Page
+1. 야채, 계란을 썰고 밑간을 해주세요
